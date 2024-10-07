@@ -2,7 +2,7 @@
 - 👀 I’m interested in providing open source codes
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Front-end developing
-- 📫 How to reach me @paige44531 Instagram
+- 📫 How to reach me haiclopoffcial@gmail.com or @paige44531 (Instagram)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am 21 year-old
 
